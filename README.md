@@ -1,1 +1,1 @@
-you can download cv.
+you can download resume.
